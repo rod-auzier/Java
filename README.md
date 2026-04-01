@@ -4,6 +4,6 @@ Yoshinho
 Fioninha
 Velinha
 Nenenzinha 
-Gordo
-Indio Velho
-Madruga
+Marlon sorrisinho
+Dolar
+Laika
